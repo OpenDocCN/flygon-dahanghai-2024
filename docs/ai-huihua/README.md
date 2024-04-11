@@ -1,4 +1,4 @@
-# 三、月航海 AI 绘画特训 实战手册
+# AI 绘画特训 实战手册 202403
 
 > 来源：[`jviztcgxxfy.feishu.cn/docx/XMpQdEOtDovLu1xE6b5c4pNCn8f`](https://jviztcgxxfy.feishu.cn/docx/XMpQdEOtDovLu1xE6b5c4pNCn8f)
 

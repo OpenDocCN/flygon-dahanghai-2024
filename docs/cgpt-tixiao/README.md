@@ -1,4 +1,4 @@
-# 三、月航海 ChatGPT 提效 实战手册
+# ChatGPT 提效 实战手册 202403
 
 > 来源：[`jviztcgxxfy.feishu.cn/docx/WKxrdFoFWogVStxySLlcsTPqnOb`](https://jviztcgxxfy.feishu.cn/docx/WKxrdFoFWogVStxySLlcsTPqnOb)
 

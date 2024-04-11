@@ -1,4 +1,4 @@
-# 三、月航海｜剪辑特训｜实战手册
+# 剪辑特训｜实战手册 202403
 
 > 来源：[`jviztcgxxfy.feishu.cn/docx/YJ0UdReZCoLKybxQfmNcptugn4g`](https://jviztcgxxfy.feishu.cn/docx/YJ0UdReZCoLKybxQfmNcptugn4g)
 

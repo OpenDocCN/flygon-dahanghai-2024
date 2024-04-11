@@ -1,4 +1,4 @@
-# 三、月航海｜小红书店铺（百货）｜实战手册
+# 小红书店铺（百货）｜实战手册 202403
 
 > 来源：[`jviztcgxxfy.feishu.cn/docx/MjtDdLvzio4RK5xdcBScu7B7nvd`](https://jviztcgxxfy.feishu.cn/docx/MjtDdLvzio4RK5xdcBScu7B7nvd)
 

@@ -1,4 +1,4 @@
-# 三、月航海 《10 倍比 2 倍更容易》21 天共读营 实战手册
+# 《10 倍比 2 倍更容易》21 天共读营 实战手册 202403
 
 > 来源：[`jviztcgxxfy.feishu.cn/docx/RutodIZZlot6BVxjHAOcrDBmnof`](https://jviztcgxxfy.feishu.cn/docx/RutodIZZlot6BVxjHAOcrDBmnof)
 
